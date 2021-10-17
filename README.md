@@ -1,2 +1,0 @@
-# ahmetakcay.github.io
-Website
